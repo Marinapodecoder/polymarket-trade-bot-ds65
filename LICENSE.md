@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with secure Polymarket Addon | slippage-control + automated-trade-execution, the #1 addon. Includes slippage-control and automated-trade-execution
 
 
 
